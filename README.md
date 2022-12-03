@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/amitsafi45](https://github.com/amitsafi45)
 
-- 📫 How to reach me **amitsafidata@gmail.com**
+- 📫 How to reach me **amitsafi2022@gmail.com**
 
 - ⚡ Fun fact **I think i am funny**
 
